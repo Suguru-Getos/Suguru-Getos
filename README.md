@@ -9,11 +9,11 @@
 <div align="center">
 
 
-   $\color{#2e5866}{\text{   ~  Names   To  Call   Me   ~ }}$
+   $\color{#702d7a}{\text{   ~  Names   To  Call   Me   ~ }}$
 
 
-   $\color{#2e5866}{\text{   ~  ᵀᵒᶠᵘ    ,    ˢᵘˢʰⁱ  ~ }}$
+   $\color{#702d7a}{\text{   ~  ᵀᵒᶠᵘ    ,    ˢᵘˢʰⁱ  ~ }}$
 
 
-   $\color{#2e5866}{\text{   ~  ᴹᵒᶜʰⁱ    ,    ᴿᵃᵐᵉⁿ  ~ }}$
+   $\color{#702d7a}{\text{   ~  ᴹᵒᶜʰⁱ    ,    ᴿᵃᵐᵉⁿ  ~ }}$
 
