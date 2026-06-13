@@ -8,24 +8,6 @@
 
 <div align="center">
 
-   $\color{#2e5866}{\text{Close Friends  :}}$
-
-
-<div align="center">
- 
-   $\color{#2e5866}{\text{   ~    ♡  ˡᵒᵏⁱ    ~     ᶻᵘᵘ   ♡   ~  }}$
-
-<div align="center">
- 
-   $\color{#2e5866}{\text{   ~   ♡     ᴿᵃᵐᵉⁿ       ~    ᴸⁱˡʸ    ♡   ~}}$
-   
-<div align="center">
-  
-
-
-
-<div align="center">
-
 
    $\color{#2e5866}{\text{   ~  Names   To  Call   Me   ~ }}$
 
