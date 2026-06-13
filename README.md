@@ -21,7 +21,7 @@
    
 <div align="center">
   
-[♡𝒲𝒾𝒻𝑒♡](https://github.com/K4XZU) ִ-  [♡𝒲𝒾𝒻𝑒♡𝒶𝓉𝒶♡](https://xxzu.atabook.org/)
+
 
 
 <div align="center">
