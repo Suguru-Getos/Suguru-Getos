@@ -3,8 +3,8 @@
 <img width="231" height="190" alt="image" src="https://github.com/user-attachments/assets/b4969c3f-520a-4825-93cf-db8ab374e544" />
 
 
-[Ata](https://suguru-geto.atabook.org/)
-
+[Guns.Lol](https://guns.lol/2ugurugeto) ~ [Ata](https://suguru-geto.atabook.org/)
+ 
 
 <div align="center">
 
