@@ -1,7 +1,6 @@
 <div align="center">
 
-<img width="231" height="190" alt="image" src="https://github.com/user-attachments/assets/b4969c3f-520a-4825-93cf-db8ab374e544" />
-
+<img width="310" height="307" alt="image" src="https://github.com/user-attachments/assets/59f865a6-769e-44a9-9d53-7219f2750dd6" />
 
 [Guns.Lol](https://guns.lol/2ugurugeto) ~ [Ata](https://suguru-geto.atabook.org/)
  
