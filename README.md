@@ -5,7 +5,7 @@
 
 
 
-[Guns.Lol](https://guns.lol/2ugurugeto) ~ [Ata](https://suguru-geto.atabook.org/) ~ [Twitter](https://x.com/Suguru_Getos) [BlySky](https://bsky.app/profile/suguru-getos.bsky.social)
+[Guns.Lol](https://guns.lol/2ugurugeto) ~ [Ata](https://suguru-geto.atabook.org/) ~ [Twitter](https://x.com/Suguru_Getos) ~ [BlySky](https://bsky.app/profile/suguru-getos.bsky.social)
  
 
 <div align="center">
