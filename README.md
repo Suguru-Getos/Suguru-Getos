@@ -34,4 +34,5 @@
   ${{\color{#ebebeb}꒱ა }}$ 
 </p>
 
-
+<p align ="center"> 
+<img width="731" height="266" alt="image" src="https://github.com/user-attachments/assets/edea1e74-d1fa-42e7-8512-ace35579746a" />
