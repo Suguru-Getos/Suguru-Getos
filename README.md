@@ -20,7 +20,7 @@
 
 <p align ="center">
  ${{\color{#30302e} ૮꒰}}$ 
-   <a href="https://suguru-geto.atabook.org//">𝘈𝘵𝘢𝘉𝘰𝘰𝘬</a>
+   <a href="https://suguru-geto.atabook.org/">𝘈𝘵𝘢𝘉𝘰𝘰𝘬</a>
  ${{\color{#444444} .☽༊˚ }}$
    <a href="https://guns.lol/2ugurugeto">𝘎𝘶𝘯𝘴.𝘓𝘰𝘭</a>
  ${{\color{#565656} .☽༊˚ }}$
